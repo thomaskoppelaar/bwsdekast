@@ -1,0 +1,2 @@
+<p>De redactie van de <a href="/archief/lustrumbundel86colofon" title="Colofon lustrumbundel 1986">lustrumbundel der VGSD</a>, editie 1986.<br /></p>
+<p><img name="lustrumbundelfoto" src="../img/archief/lb86.gif" border=0 alt="Redactie der lustrumbundel 1986"></p>
